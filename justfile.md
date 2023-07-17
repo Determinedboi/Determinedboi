@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Determinedboi
 - 👀 I’m interested in coding 
-- 🌱 I’m currently learning nothing 
-- 💞️ I’m looking to collaborate on idk
+- 🌱 I’m currently learning nothing....
 - 📫 How to reach me too idk ¯⁠\⁠_⁠(⁠ツ⁠)⁠_⁠/⁠¯
 - 
 
